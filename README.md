@@ -6,5 +6,5 @@
 
 
 
-"Another day is like a new beginning
-And so today I know that it's a new start!"
+"ᴀɴᴏᴛʜᴇʀ ᴅᴀʏ ɪꜱ ʟɪᴋᴇ ᴀ ɴᴇᴡ ʙᴇɢɪɴɴɪɴɢ
+ᴀɴᴅ ꜱᴏ ᴛᴏᴅᴀʏ ɪ ᴋɴᴏᴡ ᴛʜᴀᴛ ɪᴛ'ꜱ ᴀ ɴᴇᴡ ꜱᴛᴀʀᴛ!"
