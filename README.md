@@ -4,3 +4,7 @@
 
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ──────
 
+
+
+"Another day is like a new beginning
+And so today I know that it's a new start!"
