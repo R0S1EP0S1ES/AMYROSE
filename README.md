@@ -1,8 +1,5 @@
-
-✩ f0r3st._.w4nd3r3r.
-
-▃▃▃▃▃▃▃▃▃.⋆˚࿔
+<img width="250" height="125" alt="image" src="https://github.com/user-attachments/assets/66ec7f60-3979-4c50-abd6-05122e5deef9" />
 
 
-<img width="88" height="31" alt="image" src="https://github.com/user-attachments/assets/bedeae04-3993-4942-9a65-ced5cfb55963" />
+
 
