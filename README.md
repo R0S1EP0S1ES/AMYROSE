@@ -7,7 +7,8 @@
 
 
 
-<img width="250" height="249" alt="image" src="https://github.com/user-attachments/assets/3c79a00d-0a05-4159-94e0-0eaa58d1e777" />
+<img width="250" height="226" alt="image" src="https://github.com/user-attachments/assets/24521e50-7fc8-46b1-b6ee-9a793914fdc1" />
+
 
 
 
